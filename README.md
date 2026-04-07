@@ -25,7 +25,7 @@ I am currently documenting the best practices for user verification and payment 
 ## 📫 Reach Out
 I'm always open to collaborating on **Affiliate Funnels** and **Technical SEO** projects.
 
-- **Check out my primary blog:** [Daman Gamw](https://damankhelo.com/blogs.html)
+- **Check out my primary blog:** [Daman Game](https://damankhelo.com/blogs.html)
 
 ---
 
